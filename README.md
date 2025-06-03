@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Jaatgaming0403
 - 👀 I’m interested in web developing and game developing 
-- 🌱 I’m currently learning in class 8th 
+- 🌱 I’m currently learning in class 9th 
 - 💞️ I’m looking to collaborate on shaundshu kumar .
 - 📫 How to reach me from my portfolio. 
 - 😄 Pronouns: ...
